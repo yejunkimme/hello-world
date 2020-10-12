@@ -37,7 +37,7 @@ these are tactical instruction for front four.
 
 ![late run trezeguet](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
 
-![direct lob trezeguet](https://user-images.githubusercontent.com/51032518/95747497-87bee700-0cd3-11eb-8e54-1a5d26fe2c91.gif)
+![direct lob trezeguet 2](https://user-images.githubusercontent.com/51032518/95753150-23ecec00-0cdc-11eb-8cb6-5e9bf1e8bbe2.gif)
 
 ##### Grealish : progressive run and creates chances through dribbling.
 ![progressive jack](https://user-images.githubusercontent.com/51032518/95748551-1a13ba80-0cd5-11eb-93c2-e7bdfd4623ad.gif)
