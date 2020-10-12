@@ -102,11 +102,17 @@ While Liverpool won fast-transition three or four times, Villa's defensive block
 -----
 
 #### McGinn and Luiz covers out of position full-backs. 
-##### Luiz [25:11], [42:38](Trezeguet apologizes, indicates clear instruction)
+##### Luiz 
+![2511](https://user-images.githubusercontent.com/51032518/95766091-b8ac1580-0ced-11eb-9ab7-36a485f482a1.gif)
 
-To cause Villa's structured side out of position Liverpool mainly tried these two approaches. 
+![4238](https://user-images.githubusercontent.com/51032518/95767031-168d2d00-0cef-11eb-8407-7fe4aa963677.gif)
+
+(Trezeguet apologizes, indicates clear instruction)
 
 -----
+
+### To cause Villa's structured side out of position Liverpool mainly tried these two approaches. 
+
 #### TAA to Andy and Vicer Versa. direct side change. 
   Liverpool's direct side change to cause trouble to structured Villa side.
   > [10:08] TAA-Fabinho shoulda have been a goal.   
