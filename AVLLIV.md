@@ -118,29 +118,24 @@ Liverpool won fast-transition fewer than their usual.
   Liverpool's direct side change to cause trouble to structured Villa side.
   > Usually Liverpool will regain possession of the ball with syncronised press.
   > But Keita, and Wijnaldum lacked discipline, especially Keita.  
-  > [24:58](Salah to Robo), [29:08] (Amid corner kick mess)  
-  > [27:10] Longball from Salah to Robo, freed Jota. lovely lobbing shoot.
-  > [62:45] Trezeguet quick to cover Andy. Downside of direct side change.  
-  > [77:43] almost forced to play this way. 
+  > * [27:10] Longball from Salah to Robo, freed Jota. lovely lobbing shoot.  
+  > * [62:45] Trezeguet quick to cover Andy. Downside of direct side change.  
   
 #### fast transition  
   > [18:29] mistake from Emi Martinez.  
-  > [36:47] loose ball. Fabinho-Keita-Jota.  
   > [59:48] **goal** for Liverpool. happened in fast-transition situation.  
   
 #### midfielder passing option.  
-  > [10:08] TAA-Fabinho shoulda have been a goal.   
-  > [12:31] Fabinho initiates. dropped down Salah to Firmino. big chance.
-  > [31:56] Wijnaldum drops down causing shift in markman. **goal** for liverpool 
+  > [10:08] TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
+  > [12:31] lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
+  > [31:56] Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
   
 #### cause shift in markman or causing overload.
-  > [13:00] Firmino drops down deep. Andy causing overload. Keita breaking into the box.  
-  > [14:35] Firmino causes crack. Keita free of pressure. nearly scored. 
-  > [20:18] Jota drops down, Andy wide.  
-  > [24:00] Jota drags his markman out of position.  
-  > [25:28] Salah drops down   
-  > [45:43] Jota right-side overload. Salah frees Andy.
-  > [56:48] Salah drops down  
+  > * [13:00] Firmino drops down deep. Keita dribble past Luiz thanks to Firmino. Andy causing overload. Keita breaking into the box.  
+  > * [14:35] Firmino causes crack. Keita free of pressure. nearly scored.  
+  > * [20:18] Jota drops down, Andy wide. Firmino spots free space. Trezeguet lack of concentration. Andy blindside run. Cash not sure to mark whom.
+  > * [24:00] Jota drags his markman out of position in throw-in situation but fails to score from distance.  
+  > * [45:43] Jota right-side overload. Salah frees Andy. similar to [24:00]  
   
 -----
 
