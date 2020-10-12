@@ -143,29 +143,38 @@ While Liverpool won fast-transition three or four times, Villa's defensive block
 -----
 
 ### Liverpool's lack of tracking run and general discipline. 
-  second goal came from the lack of tracking run by TAA. sixth goal [66:01] shows Liverpool's midfielers should have dropped down a bit 
-  [first goal]
+  second goal came from the lack of tracking run by TAA. sixth goal 
+  
+  ![6601](https://user-images.githubusercontent.com/51032518/95769655-2eff4680-0cf3-11eb-89e5-b9409dace45e.gif)
+  
+  shows Liverpool's midfielers should have dropped down a bit
   
 ### Liverpool's second half struggle. 
 #### Minamino in Keita out [45:00]
 Klopp subbed in Minamino for Keita who had a really bad performance, lack of tracking run and no discipline in pressing.  
 Minamino was assigned to right side of midfield to aid TAA which Keita should have done.
 but failed to do his job and conceded 6th goal.  
+
 ![6353](https://user-images.githubusercontent.com/51032518/95761518-62d46f00-0ce7-11eb-9bd4-d3b868fca9e0.gif)
 
 ![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
 
+no contribution in attacking neither.
 
-[69:44] no contribution in attacking. here, Minamino should have performed penetration pass. 
-[70:51] lack of physical stregth. can't thrive in between the lines. 
+![6944](https://user-images.githubusercontent.com/51032518/95768011-a1baf280-0cf0-11eb-91d1-a1c199a2f40a.gif)
+
+![7051](https://user-images.githubusercontent.com/51032518/95768402-3e7d9000-0cf1-11eb-962a-7c6cfd64d362.gif)
 
 #### Joe Gomez out Curtis Jones in [61:00]
 This sub is based on Gomez's awful and awful performance. Not really a tactical substitution.  
 Fabinho drops down to pair with VVD in certre half. 
 
 #### Firmino out Milner in [68:00]
-Finally, after conceding three, Klopp makes defensive change to his side. Milner covers Grealish now. [69:03]
-However, this is not enough to stop Villa captain. Salah should have helped too. [74:25]  
+Finally, after conceding three, Klopp makes defensive change to his side. Milner covers Grealish now.
+However, this is not enough to stop Villa captain. Salah should have helped too. 
+
+![7425](https://user-images.githubusercontent.com/51032518/95768904-0460be00-0cf2-11eb-82a4-3d4014a2a1bd.gif)
+
 TAA is again left alone to stop Grealish. 
 
 #### Villa's substitutions.
