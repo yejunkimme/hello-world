@@ -34,6 +34,7 @@ these are tactical instruction for front four.
 
 ##### Trezeguet : late-run option, direct, mixer play
 ![direct trezeguet](https://user-images.githubusercontent.com/51032518/95747030-affa1600-0cd2-11eb-83d0-3471065f0dcf.gif)
+targets Ollie.
 
 ![late run trezeguet](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
 
@@ -44,13 +45,15 @@ these are tactical instruction for front four.
 
 ![fantastic four 1](https://user-images.githubusercontent.com/51032518/95748472-010b0980-0cd5-11eb-901b-8f1ccb3c2112.gif)
 
-, [63:53-63:57] front three combo, [65:24], 
+![6353](https://user-images.githubusercontent.com/51032518/95761518-62d46f00-0ce7-11eb-9bd4-d3b868fca9e0.gif)
+
 ##### Barkley : ball carrying and glides through channel Ollie manipulated.
-> [37:33]
+![3733](https://user-images.githubusercontent.com/51032518/95761810-cced1400-0ce7-11eb-989d-81c581162307.gif)
+![2530](https://user-images.githubusercontent.com/51032518/95763208-b6e05300-0ce9-11eb-97dd-2f1866587269.gif)
+
 ##### Watkins : manipulates Gomez and provides header option. primary air target. 
-> [11:01] Ollie progressive run and air option  
 > [30:34] Ollie occupies Gomez, Ross through two centre halfs.  
-> [65:24] **goal** for Villa. 
+> [65:24] ** 6th goal** for Villa. 
 
 Liverpool struggled to block Grealish-side attack. Their defence was not disciplined at all and Salah didn't help TAA much often.  
 Joe Gomez had nightmare of a performance defending Ollie Watkins. 
