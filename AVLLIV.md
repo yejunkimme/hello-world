@@ -16,7 +16,7 @@ Liverpool formed with their usual 4-3-3 with Diogo Jota replacing Sadio Mane who
 and Keita for injured Liverpool's captain Jordan Henderson. 
 
 Liverpool won the league last season with staggering performance from very high up pitch full-backs and fluent switching play from front three. 
-Villa came up with 4-4-2 with Ross Barkley and Oliver Watkins forming front defensive line. while Jack Grealish and Mahmoud Trezeguet forming mid defensive line with Jogn McGinn and Douglas Luiz.  
+Villa came up with 4-4-2 with Ross Barkley and Oliver Watkins forming front defensive line. while Jack Grealish and Mahmoud Trezeguet forming mid defensive line with John McGinn and Douglas Luiz.  
 Douglas Luiz and John McGinn were given very strict role to protect back four.  
 
 ![front most defensive wall3](https://user-images.githubusercontent.com/51032518/95746384-aae89700-0cd1-11eb-9bbf-b00343109df5.gif)
