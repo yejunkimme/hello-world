@@ -58,6 +58,8 @@ air target Ollie.
 
 ![2530](https://user-images.githubusercontent.com/51032518/95763208-b6e05300-0ce9-11eb-97dd-2f1866587269.gif)
 
+notice Luiz performing easiest pass in both situations. clear instruction enables players to stick to tactic. 
+
 ##### Watkins : manipulates Gomez and provides header option. primary air target. 
 **6th goal** for Villa.  
 ![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
