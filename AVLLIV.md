@@ -39,7 +39,8 @@ these are tactical instruction for front four.
 
 ##### Trezeguet : late-run option, direct, mixer play
 ![direct trezeguet](https://user-images.githubusercontent.com/51032518/95747030-affa1600-0cd2-11eb-83d0-3471065f0dcf.gif)
-targets Ollie.
+
+air target Ollie.
 
 ![3034](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
 
