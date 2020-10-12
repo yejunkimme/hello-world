@@ -1,4 +1,7 @@
 ## AVLLIV Analysis
+
+
+## part 1
 This is an analysis based on single match performance.  
 I haven't followed much of Aston Villa's game last season or this season.  
 Might be bit wrong on individual playstyle.  
@@ -36,7 +39,7 @@ these are tactical instruction for front four.
 ![direct trezeguet](https://user-images.githubusercontent.com/51032518/95747030-affa1600-0cd2-11eb-83d0-3471065f0dcf.gif)
 targets Ollie.
 
-![late run trezeguet](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
+![3034](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
 
 ![direct lob trezeguet 2](https://user-images.githubusercontent.com/51032518/95753150-23ecec00-0cdc-11eb-8cb6-5e9bf1e8bbe2.gif)
 
@@ -52,8 +55,8 @@ targets Ollie.
 ![2530](https://user-images.githubusercontent.com/51032518/95763208-b6e05300-0ce9-11eb-97dd-2f1866587269.gif)
 
 ##### Watkins : manipulates Gomez and provides header option. primary air target. 
-> [30:34] Ollie occupies Gomez, Ross through two centre halfs.  
-> [65:24] ** 6th goal** for Villa. 
+** 6th goal** for Villa. 
+![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
 
 Liverpool struggled to block Grealish-side attack. Their defence was not disciplined at all and Salah didn't help TAA much often.  
 Joe Gomez had nightmare of a performance defending Ollie Watkins. 
@@ -65,7 +68,8 @@ Joe Gomez had nightmare of a performance defending Ollie Watkins.
   However, since Grealish's attacking threat made Liverpool's right full-back TAA intimidated.  
   Because Grealish poses very lethal threat, TAA and Salah couldn't engage in attack care-free.  
   Most of the goal and goal-scoring chances were from Grealish.  
-  > [64:37] TAA marking Jack.
+ ![6437](https://user-images.githubusercontent.com/51032518/95764395-60741400-0ceb-11eb-9a38-e32ef30e7ccf.gif)
+
   
   On the other side, Trezequet were given much defensive role.  
   Trezeguet marked Jota or Robertson depending on the situation.  
@@ -74,6 +78,8 @@ Joe Gomez had nightmare of a performance defending Ollie Watkins.
   Off the ball, since Trezeguet starts run deep in the line, he only provided late-run option to hold Robertson wide from VVD. 
     
 -----
+
+## part 2
 ### Liverpool's answer to the wall.
 
 To summarise so far, Villa's basic set-up were really good in that it made full advantage of their players and blocked Liverpool's primary attacking tactic, which is to achieve unstructured state in fast transition and causing overload with high up pitch full-backs. 
