@@ -5,6 +5,8 @@ Might be bit wrong on individual playstyle.
 
 ### Basic Villa set-up vs Liverpool. 
 #### 4-4-2
+![442](https://user-images.githubusercontent.com/51032518/95745977-036b6480-0cd1-11eb-88bd-c31e67fad30b.gif)
+
 ##### Ross-Ollie most front defensive wall.
 
 Liverpool formed with their usual 4-3-3 with Diogo Jota replacing Sadio Mane who is quarantining himself due to Covid-19,  
@@ -14,9 +16,9 @@ Liverpool won the league last season with staggering performance from very high 
 Villa came up with 4-4-2 with Ross Barkley and Oliver Watkins forming front defensive line. while Jack Grealish and Mahmoud Trezeguet forming mid defensive line with Jogn McGinn and Douglas Luiz.  
 Douglas Luiz and John McGinn were given very strict role to protect back four.  
 
-[63:11], [63:13], [63:53] McGinn and Luiz stays behind.
+![front most defensive wall3](https://user-images.githubusercontent.com/51032518/95746384-aae89700-0cd1-11eb-9bbf-b00343109df5.gif)
 
-[08:30], [12:28] when it fails, 
+[12:28] when it fails, 
 
 -----
 #### Fantastic Four
@@ -30,10 +32,25 @@ It also prevents unstructured defensive line for Luiz and McGinn doesn't have to
 
 these are tactical instruction for front four.  
 
-##### Trezeguet : late-run option, direct mixer play
-> [11:15], [30:34], [32:52], [34:03]
+##### Trezeguet : late-run option, direct, mixer play
+![direct trezeguet](https://user-images.githubusercontent.com/51032518/95747030-affa1600-0cd2-11eb-83d0-3471065f0dcf.gif)
+
+![late run trezeguet](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
+
+![direct lob trezeguet](https://user-images.githubusercontent.com/51032518/95747497-87bee700-0cd3-11eb-8e54-1a5d26fe2c91.gif)
+
 ##### Grealish : progressive run and creates chances through dribbling.
-> [01:13], [07:25], [20:00], [63:53-63:57] front three combo, [65:24], 
+> [01:13], 
+![progressive jack](https://user-images.githubusercontent.com/51032518/95748551-1a13ba80-0cd5-11eb-93c2-e7bdfd4623ad.gif)
+
+
+[07:25],
+![fantastic four 1](https://user-images.githubusercontent.com/51032518/95748472-010b0980-0cd5-11eb-901b-8f1ccb3c2112.gif)
+
+[20:00]
+
+
+, [63:53-63:57] front three combo, [65:24], 
 ##### Barkley : ball carrying and glides through channel Ollie manipulated.
 > [37:33]
 ##### Watkins : manipulates Gomez and provides header option. primary air target. 
