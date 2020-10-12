@@ -74,6 +74,7 @@ Joe Gomez had nightmare of a performance defending Ollie Watkins.
   However, since Grealish's attacking threat made Liverpool's right full-back TAA intimidated.  
   Because Grealish poses very lethal threat, TAA and Salah couldn't engage in attack care-free.  
   Most of the goal and goal-scoring chances were from Grealish.  
+  
  ![6437](https://user-images.githubusercontent.com/51032518/95764395-60741400-0ceb-11eb-9a38-e32ef30e7ccf.gif)
 
   
