@@ -52,13 +52,14 @@ targets Ollie.
 
 ##### Barkley : ball carrying and glides through channel Ollie manipulated.
 ![3733](https://user-images.githubusercontent.com/51032518/95761810-cced1400-0ce7-11eb-989d-81c581162307.gif)
+
 ![2530](https://user-images.githubusercontent.com/51032518/95763208-b6e05300-0ce9-11eb-97dd-2f1866587269.gif)
 
 ##### Watkins : manipulates Gomez and provides header option. primary air target. 
-** 6th goal** for Villa. 
+**6th goal** for Villa.  
 ![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
 
-Liverpool struggled to block Grealish-side attack. Their defence was not disciplined at all and Salah didn't help TAA much often.  
+> Liverpool struggled to block Grealish-side attack. Their defence was not disciplined at all and Salah didn't help TAA much often.  
 Joe Gomez had nightmare of a performance defending Ollie Watkins. 
 
 -----
