@@ -44,9 +44,6 @@ these are tactical instruction for front four.
 
 ![fantastic four 1](https://user-images.githubusercontent.com/51032518/95748472-010b0980-0cd5-11eb-901b-8f1ccb3c2112.gif)
 
-[20:00]
-
-
 , [63:53-63:57] front three combo, [65:24], 
 ##### Barkley : ball carrying and glides through channel Ollie manipulated.
 > [37:33]
