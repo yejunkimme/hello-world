@@ -150,7 +150,10 @@ While Liverpool won fast-transition three or four times, Villa's defensive block
 #### Minamino in Keita out [45:00]
 Klopp subbed in Minamino for Keita who had a really bad performance, lack of tracking run and no discipline in pressing.  
 Minamino was assigned to right side of midfield to aid TAA which Keita should have done. [63:11], [63:53], [63:57]
-but failed to do his job [65:24] and conceded 6th goal.  
+but failed to do his job and conceded 6th goal.  
+
+![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
+
 
 [69:44] no contribution if attacking. here, Minamino should have performed penetration pass. 
 [70:51] lack of physical stregth. can't thrive in between the lines. 
