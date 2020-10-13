@@ -10,7 +10,7 @@ Might be bit wrong on individual playstyle.
 #### 4-4-2
 ![442](https://user-images.githubusercontent.com/51032518/95745977-036b6480-0cd1-11eb-88bd-c31e67fad30b.gif)
 
-##### Ross-Ollie most front defensive wall.
+#### Ross-Ollie most front defensive wall.
 
 Liverpool formed with their usual 4-3-3 with Diogo Jota replacing Sadio Mane who is quarantining himself due to Covid-19,  
 and Keita for injured Liverpool's captain Jordan Henderson. 
@@ -24,7 +24,7 @@ Douglas Luiz and John McGinn were given very strict role to protect back four.
 > you can clearly see the defensive lines even without any annotation. 
 
 -----
-#### Fantastic Four
+### Fantastic Four
 Villa's most attacks consisted of just front four.  
 While full-backs and two holding midfielder Luiz and McGinn staying behind to prevent Liverpool's counter attack.  
 Liverpool's instant press to regain possession of the ball is notorious.  
