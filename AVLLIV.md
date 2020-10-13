@@ -35,7 +35,7 @@ It also prevents unstructured defensive line for Luiz and McGinn doesn't have to
 
 these are tactical instruction for front four.  
 
-##### Trezeguet : late-run option, direct, mixer play
+##### `Trezeguet : late-run option, direct, mixer play`
 ![direct trezeguet](https://user-images.githubusercontent.com/51032518/95747030-affa1600-0cd2-11eb-83d0-3471065f0dcf.gif)
 
 > air target Ollie.
@@ -44,21 +44,21 @@ these are tactical instruction for front four.
 
 ![direct lob trezeguet 2](https://user-images.githubusercontent.com/51032518/95753150-23ecec00-0cdc-11eb-8cb6-5e9bf1e8bbe2.gif)
 
-##### Grealish : progressive run and creates chances through dribbling.
+##### `Grealish : progressive run and creates chances through dribbling.`
 ![progressive jack](https://user-images.githubusercontent.com/51032518/95748551-1a13ba80-0cd5-11eb-93c2-e7bdfd4623ad.gif)
 
 ![fantastic four 1](https://user-images.githubusercontent.com/51032518/95748472-010b0980-0cd5-11eb-901b-8f1ccb3c2112.gif)
 
 ![6353](https://user-images.githubusercontent.com/51032518/95761518-62d46f00-0ce7-11eb-9bd4-d3b868fca9e0.gif)
 
-##### Barkley : ball carrying and glides through channel Ollie manipulated.
+##### `Barkley : ball carrying and glides through channel Ollie manipulated.`
 ![3733](https://user-images.githubusercontent.com/51032518/95761810-cced1400-0ce7-11eb-989d-81c581162307.gif)
 
 ![2530](https://user-images.githubusercontent.com/51032518/95763208-b6e05300-0ce9-11eb-97dd-2f1866587269.gif)
 
 > notice Luiz performing easiest pass in both situations. clear instruction enables players to stick to tactic. 
 
-##### Watkins : manipulates Gomez and provides header option. primary air target. 
+##### `Watkins : manipulates Gomez and provides header option. primary air target. `
 **6th goal** for Villa.  
 ![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
 
