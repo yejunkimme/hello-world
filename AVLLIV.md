@@ -122,19 +122,32 @@ But Keita, and Wijnaldum lacked discipline, especially Keita.
 
 ![2710](https://user-images.githubusercontent.com/51032518/95804055-a6a59380-0d3c-11eb-9aad-0224e952a2e4.gif)
  
-* [62:45] Trezeguet quick to cover Andy. Downside of direct side change.  
+![6245](https://user-images.githubusercontent.com/51032518/95808658-e9209d80-0d47-11eb-92c5-1e91a4770efa.gif)
   
 #### fast transition  
-[18:29] mistake from Emi Martinez.  
-[59:48] **goal** for Liverpool. happened in fast-transition situation.  
-  
+
+![1829](https://user-images.githubusercontent.com/51032518/95809036-c3e05f00-0d48-11eb-92b2-5e9ca966aba0.gif)
+
+![5948](https://user-images.githubusercontent.com/51032518/95809729-77961e80-0d4a-11eb-8b85-cc935fe92ae9.gif)
+
+**goal** for Liverpool
+
 #### midfielder passing option.  
-[10:08] TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
-[12:31] lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
+
+![1008](https://user-images.githubusercontent.com/51032518/95810119-36523e80-0d4b-11eb-9091-ca5e9d523df2.gif)
+ 
+TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
+
+![1231](https://user-images.githubusercontent.com/51032518/95810572-3a329080-0d4c-11eb-903d-f5d3bc079029.gif)
+
+lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
+
 [31:56] Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
   
 #### cause shift in markman or causing overload.
-* [13:00] Firmino drops down deep. Keita dribble past Luiz thanks to Firmino. Andy causing overload. Keita breaking into the box.  
+
+![1300](https://user-images.githubusercontent.com/51032518/95811075-71ee0800-0d4d-11eb-878b-5291b408a753.gif)  
+
 * [14:35] Firmino causes crack. Keita free of pressure. nearly scored.  
 * [20:18] Jota drops down, Andy wide. Firmino spots free space. Trezeguet lack of concentration. Andy blindside run. Cash not sure to mark whom.
 * [24:00] Jota drags his markman out of position in throw-in situation but fails to score from distance.  
