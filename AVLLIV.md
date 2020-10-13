@@ -142,17 +142,20 @@ TAA-Fabinho shoulda have been a goal. Keita fails to register goal.
 
 lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
 
-[31:56] Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
+![3156](https://user-images.githubusercontent.com/51032518/95818661-57bd2580-0d5f-11eb-9a2e-3e7d018aba87.gif)
+
+Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
   
 #### cause shift in markman or causing overload.
 
 ![1300](https://user-images.githubusercontent.com/51032518/95811075-71ee0800-0d4d-11eb-878b-5291b408a753.gif)  
 
-* [14:35] Firmino causes crack. Keita free of pressure. nearly scored.  
-* [20:18] Jota drops down, Andy wide. Firmino spots free space. Trezeguet lack of concentration. Andy blindside run. Cash not sure to mark whom.
-* [24:00] Jota drags his markman out of position in throw-in situation but fails to score from distance.  
-* [45:43] Jota right-side overload. Salah frees Andy. similar to [24:00]  
-  
+![1435](https://user-images.githubusercontent.com/51032518/95816898-2fcbc300-0d5b-11eb-824a-afee3b72e1b1.gif)
+    
+![2018](https://user-images.githubusercontent.com/51032518/95817812-60146100-0d5d-11eb-9a1b-329d96b194fc.gif)
+
+![2400](https://user-images.githubusercontent.com/51032518/95818060-f052a600-0d5d-11eb-87d0-31b18de83e40.gif)
+
 -----
 
 ### Liverpool's lack of tracking run and general discipline. 
