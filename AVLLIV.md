@@ -21,9 +21,7 @@ Douglas Luiz and John McGinn were given very strict role to protect back four.
 
 ![front most defensive wall3](https://user-images.githubusercontent.com/51032518/95746384-aae89700-0cd1-11eb-9bbf-b00343109df5.gif)
 
-you can clearly see the defensive lines even without any annotation. 
-
-[12:28] when it fails, 
+> you can clearly see the defensive lines even without any annotation. 
 
 -----
 #### Fantastic Four
