@@ -114,37 +114,40 @@ Liverpool won fast-transition fewer than their usual.
 
 ### To cause Villa's structured side out of position Liverpool took these approaches.
 
-#### side change through long ball
-  Liverpool's direct side change to cause trouble to structured Villa side.
-  > Usually Liverpool will regain possession of the ball with syncronised press.
-  > But Keita, and Wijnaldum lacked discipline, especially Keita.  
-  > * [27:10] Longball from Salah to Robo, freed Jota. lovely lobbing shoot.  
-  > * [62:45] Trezeguet quick to cover Andy. Downside of direct side change.  
+#### side change through long ball  
+
+Liverpool's direct side change to cause trouble to structured Villa side.  
+Usually Liverpool will regain possession of the ball with syncronised press.  
+But Keita, and Wijnaldum lacked discipline, especially Keita.  
+
+![2710](https://user-images.githubusercontent.com/51032518/95804055-a6a59380-0d3c-11eb-9aad-0224e952a2e4.gif)
+ 
+* [62:45] Trezeguet quick to cover Andy. Downside of direct side change.  
   
 #### fast transition  
-  > [18:29] mistake from Emi Martinez.  
-  > [59:48] **goal** for Liverpool. happened in fast-transition situation.  
+[18:29] mistake from Emi Martinez.  
+[59:48] **goal** for Liverpool. happened in fast-transition situation.  
   
 #### midfielder passing option.  
-  > [10:08] TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
-  > [12:31] lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
-  > [31:56] Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
+[10:08] TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
+[12:31] lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
+[31:56] Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
   
 #### cause shift in markman or causing overload.
-  > * [13:00] Firmino drops down deep. Keita dribble past Luiz thanks to Firmino. Andy causing overload. Keita breaking into the box.  
-  > * [14:35] Firmino causes crack. Keita free of pressure. nearly scored.  
-  > * [20:18] Jota drops down, Andy wide. Firmino spots free space. Trezeguet lack of concentration. Andy blindside run. Cash not sure to mark whom.
-  > * [24:00] Jota drags his markman out of position in throw-in situation but fails to score from distance.  
-  > * [45:43] Jota right-side overload. Salah frees Andy. similar to [24:00]  
+* [13:00] Firmino drops down deep. Keita dribble past Luiz thanks to Firmino. Andy causing overload. Keita breaking into the box.  
+* [14:35] Firmino causes crack. Keita free of pressure. nearly scored.  
+* [20:18] Jota drops down, Andy wide. Firmino spots free space. Trezeguet lack of concentration. Andy blindside run. Cash not sure to mark whom.
+* [24:00] Jota drags his markman out of position in throw-in situation but fails to score from distance.  
+* [45:43] Jota right-side overload. Salah frees Andy. similar to [24:00]  
   
 -----
 
 ### Liverpool's lack of tracking run and general discipline. 
-  second goal came from the lack of tracking run by TAA. sixth goal 
+second goal came from the lack of tracking run by TAA. sixth goal 
   
-  ![6601](https://user-images.githubusercontent.com/51032518/95769655-2eff4680-0cf3-11eb-89e5-b9409dace45e.gif)
+![6601](https://user-images.githubusercontent.com/51032518/95769655-2eff4680-0cf3-11eb-89e5-b9409dace45e.gif)
   
-  shows Liverpool's midfielers should have dropped down a bit
+shows Liverpool's midfielers should have dropped down a bit
   
 ### Liverpool's second half struggle. 
 #### Minamino in Keita out [45:00]
