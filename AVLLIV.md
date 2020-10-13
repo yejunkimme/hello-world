@@ -159,12 +159,17 @@ Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liv
 -----
 
 ### Liverpool's lack of tracking run and general discipline. 
-second goal came from the lack of tracking run by TAA. sixth goal 
-  
+
 ![6601](https://user-images.githubusercontent.com/51032518/95769655-2eff4680-0cf3-11eb-89e5-b9409dace45e.gif)
+
+This is an clearly evident point.  
+Liverpool maintained high defensive line but midfielders lacked tracking run and general defensive discipline.  
+Liverpool should have dropped their defensive line.
   
-shows Liverpool's midfielers should have dropped down a bit
+-----
   
+## part 3
+
 ### Liverpool's second half struggle. 
 #### Minamino in Keita out [45:00]
 Klopp subbed in Minamino for Keita who had a really bad performance, lack of tracking run and no discipline in pressing.  
