@@ -40,7 +40,7 @@ these are tactical instruction for front four.
 ##### Trezeguet : late-run option, direct, mixer play
 ![direct trezeguet](https://user-images.githubusercontent.com/51032518/95747030-affa1600-0cd2-11eb-83d0-3471065f0dcf.gif)
 
-air target Ollie.
+> air target Ollie.
 
 ![3034](https://user-images.githubusercontent.com/51032518/95747211-06675480-0cd3-11eb-8350-ba8c6337d365.gif)
 
@@ -58,7 +58,7 @@ air target Ollie.
 
 ![2530](https://user-images.githubusercontent.com/51032518/95763208-b6e05300-0ce9-11eb-97dd-2f1866587269.gif)
 
-notice Luiz performing easiest pass in both situations. clear instruction enables players to stick to tactic. 
+> notice Luiz performing easiest pass in both situations. clear instruction enables players to stick to tactic. 
 
 ##### Watkins : manipulates Gomez and provides header option. primary air target. 
 **6th goal** for Villa.  
@@ -130,21 +130,21 @@ But Keita, and Wijnaldum lacked discipline, especially Keita.
 
 ![5948](https://user-images.githubusercontent.com/51032518/95809729-77961e80-0d4a-11eb-8b85-cc935fe92ae9.gif)
 
-**goal** for Liverpool
+> **goal** for Liverpool
 
 #### midfielder passing option.  
 
 ![1008](https://user-images.githubusercontent.com/51032518/95810119-36523e80-0d4b-11eb-9091-ca5e9d523df2.gif)
  
-TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
+> TAA-Fabinho shoulda have been a goal. Keita fails to register goal.  
 
 ![1231](https://user-images.githubusercontent.com/51032518/95810572-3a329080-0d4c-11eb-903d-f5d3bc079029.gif)
 
-lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
+> lovely turn by Fabinho. dropped down Salah to Firmino. big chance.  
 
 ![3156](https://user-images.githubusercontent.com/51032518/95818661-57bd2580-0d5f-11eb-9a2e-3e7d018aba87.gif)
 
-Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
+> Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liverpool  
   
 #### cause shift in markman or causing overload.
 
@@ -162,9 +162,9 @@ Wijnaldum drops down causing shift in markman. fast-transition. **goal** for liv
 
 ![6601](https://user-images.githubusercontent.com/51032518/95769655-2eff4680-0cf3-11eb-89e5-b9409dace45e.gif)
 
-This is an clearly evident point.  
-Liverpool maintained high defensive line but midfielders lacked tracking run and general defensive discipline.  
-Liverpool should have dropped their defensive line.
+> This is an clearly evident point.  
+> Liverpool maintained high defensive line but midfielders lacked tracking run and general defensive discipline.  
+> Liverpool should have dropped their defensive line.
   
 -----
   
@@ -180,7 +180,7 @@ but failed to do his job and conceded 6th goal.
 
 ![6524](https://user-images.githubusercontent.com/51032518/95763686-569de100-0cea-11eb-93e0-555754b6d602.gif)
 
-no contribution in attacking neither.
+> no contribution in attacking neither.
 
 ![6944](https://user-images.githubusercontent.com/51032518/95768011-a1baf280-0cf0-11eb-91d1-a1c199a2f40a.gif)
 
@@ -196,7 +196,7 @@ However, this is not enough to stop Villa captain. Salah should have helped too.
 
 ![7425](https://user-images.githubusercontent.com/51032518/95768904-0460be00-0cf2-11eb-82a4-3d4014a2a1bd.gif)
 
-TAA is again left alone to stop Grealish. 
+> TAA is again left alone to stop Grealish. 
 
 #### Villa's substitutions.
 I'll skip this chapter for the article is too long already and they were not really important to the game.
