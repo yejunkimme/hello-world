@@ -120,16 +120,12 @@ sf나 좀비 영화가 가질 수 있는 유리한 고지 (인종차별, 정치,
 # 가족애로 마무리
 
 
+# misc
+
 And morning show featuring cute pink socks. 
-"Your socks are so cute."  
+"Your socks are so cute."  이해 안 되는 쇼트
 
 Is it a big hoax? (Donald Trump)  
 
 Voodoo; Neil Gaiman; American Gods
-
-And comes in a American House.  
-Two girls **screams** and runs toward their parents.  
-
-And yet another news on TV on morning table.  
-contrasted with tranquility of suburban household in Philadelphia.  
 
